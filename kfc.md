@@ -1,0 +1,1 @@
+"Szeretem a KFC-t" 
